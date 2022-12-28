@@ -1,1 +1,0 @@
-# duchida47.github.io
